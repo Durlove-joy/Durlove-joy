@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @Durlove-joy
 - 👀 I’m interested in Global Peace
-- 🌱 I’m currently learning Cybersecurity
-- 💞️ I’m looking to collaborate on 
+- 🌱 I’m currently learning Cybersecurity and Peace & Conflict Studies
 - 📫 Contact: joysaeker21005@gmail.com
 
 <!---
